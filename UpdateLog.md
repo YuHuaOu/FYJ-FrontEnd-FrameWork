@@ -1,0 +1,1 @@
+In this fall, this is very tough, in this fall I'm going to take my talents to South Beach and join the Miami Heat.
